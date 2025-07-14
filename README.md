@@ -3,9 +3,18 @@
 ## The religious and folk cluture
 
 * Some Cultural informations is available here.
-* 
-* My Name Avneet Singh
-* My CRN 2415039 
 
-Name:Gagandeep kaur batth
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ ## cultural info
 
