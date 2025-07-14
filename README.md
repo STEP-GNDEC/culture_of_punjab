@@ -1,4 +1,4 @@
-# culture_of_punjab
+# culture_of_punjabies
 
 ## The religious and folk cluture
 
