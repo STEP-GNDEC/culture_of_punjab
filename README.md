@@ -1,7 +1,7 @@
 # culture_of_punjab
 #This is a clone of culture punjab
 ## The religious and folk cluture
-
+punjabi
 * Some Cultural informations is available here.
 * 
 * My Name Avneet Singh
